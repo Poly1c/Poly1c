@@ -3,4 +3,4 @@
 a empadinha de camarão, me lembra até, o GitHub 💙
 
 ### Para me contatar, acesse:
-- 𝕏
+- [𝕏](x.com/nyandigum)
